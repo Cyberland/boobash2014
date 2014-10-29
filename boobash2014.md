@@ -1,4 +1,4 @@
-# [_Cyberland_](http://cyberland.tenderapp.com/discussions/cyberland)[_ _](http://www.reddit.com/me/m/cyberland)/
+# [Cyberland](http://cyberland.tenderapp.com/discussions/cyberland)/
 
 #Boo Bash 2014
 
