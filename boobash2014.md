@@ -4,7 +4,7 @@
 
 The Boo Bash for this year was held at the Sports Complex in Mount Pleasant. Kids were invited to attend wearing their Halloween costumes. There was free candy, and the ice arena hosted a Halloween themed open skate.
 
-[Image: https://quip.com/-/blob/6j1MhISJdKMC2DnkThi2lA]
+![](103_4906.JPG)
 
 On Saturday, October 25, 2014, the ICE Arena and Morey Courts held their annual Boo Bash. We took all three of our kids there in costume. Kayla was dressed as a ladybug, Josh went as Spider-Man, and Elijah was dressed as a bear.
 
