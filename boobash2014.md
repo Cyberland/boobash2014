@@ -10,7 +10,7 @@ On Saturday, October 25, 2014, the ICE Arena and Morey Courts held their annual 
 
 During previous years, we’ve waited a long time to get into the event, but this year the line was a lot shorter and moved quicker. It might have helped that we arrived before five o’clock. I think that a bigger crowd gathered around 5:30 p.m. I’m also wondering if the great weather we had all day long (60 degree weather) had something to do with it. Perhaps people just didn’t want to spend their evening indoors.
 
-[Image: 103_4874.JPG]
+()[103_4874.JPG]
 
 Kayla went directly into the ICE Arena where she was going to participate in that night’s Halloween-themed open skate. The boys and I headed straight up to the second level of Morey Courts. Because we had Elijah’s stroller, we were routed to an elevator where we could easily reach the upper floor. Everybody else flowed up the stairs.
 
