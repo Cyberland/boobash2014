@@ -5,11 +5,13 @@
 The Boo Bash for this year was held at the Sports Complex in Mount Pleasant. Kids were invited to attend wearing their Halloween costumes. There was free candy, and the ice arena hosted a Halloween themed open skate.
 
 [Image: https://quip.com/-/blob/6j1MhISJdKMC2DnkThi2lA]
+
 On Saturday, October 25, 2014, the ICE Arena and Morey Courts held their annual Boo Bash. We took all three of our kids there in costume. Kayla was dressed as a ladybug, Josh went as Spider-Man, and Elijah was dressed as a bear.
 
 During previous years, we’ve waited a long time to get into the event, but this year the line was a lot shorter and moved quicker. It might have helped that we arrived before five o’clock. I think that a bigger crowd gathered around 5:30 p.m. I’m also wondering if the great weather we had all day long (60 degree weather) had something to do with it. Perhaps people just didn’t want to spend their evening indoors.
 
 [Image: https://quip.com/-/blob/jW3hOKvGkwg5iD0ZJ6BlXA]
+
 Kayla went directly into the ICE Arena where she was going to participate in that night’s Halloween-themed open skate. The boys and I headed straight up to the second level of Morey Courts. Because we had Elijah’s stroller, we were routed to an elevator where we could easily reach the upper floor. Everybody else flowed up the stairs.
 
 It was great to be able to go up with the stroller, but then it was a little awkward trying to get back into line. It was like having to give up our place in line so that we could look like total jerks attempting to cut back into line. Another father who we had followed into the elevator also had a stroller. I asked him what the proper etiquette was for getting back in line, and he said that he was looking for the approximate point where he had left the line. This seemed pretty fair. I watched for familiar until an opportunity seemed to present itself.
