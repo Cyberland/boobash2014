@@ -1,6 +1,6 @@
 # [_Cyberland_](http://cyberland.tenderapp.com/discussions/cyberland)[_ _](http://www.reddit.com/me/m/cyberland)/
 
-Boo Bash 2014
+#Boo Bash 2014
 
 The Boo Bash for this year was held at the Sports Complex in Mount Pleasant. Kids were invited to attend wearing their Halloween costumes. There was free candy, and the ice arena hosted a Halloween themed open skate.
 
